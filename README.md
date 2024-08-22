@@ -1,1 +1,0 @@
-# ngmymy.github.io
